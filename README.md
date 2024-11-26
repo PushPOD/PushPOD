@@ -4,4 +4,4 @@
 - 👯 I’m looking to collaborate on any data programming projects.
 - 🤔 I’m looking for help with knowledges to enhence my skill sets.
 - 📫 How to reach me: ...
-- ⚡ Fun fact: BTW, a petrol head as well, any topics related to automobile, motorsports are welcomed ;-)
+- ⚡ Fun fact: BTW, a die hard petrol head as well, any topics related to automobile, motorsports are welcomed ;-)
